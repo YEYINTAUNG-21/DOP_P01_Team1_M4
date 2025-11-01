@@ -18,3 +18,7 @@ In the years since Blonde, Frank Ocean has become more than a musician — he’
 
 Today, Frank Ocean stands as a symbol of artistic freedom and emotional depth — a creator who refuses to be confined by trends or timelines. His rare appearances, cryptic messages, and selective releases only deepen his mystique, turning every word and melody into an event. Beyond music, he’s extended his vision into fashion, photography, and design, weaving his aesthetic into every medium he touches. Yet at the heart of it all remains the same quiet truth — Frank Ocean makes art for feeling, not for fame. His work is a reminder that vulnerability is powerful, silence can speak, and authenticity never goes out of style. - Justin
 
+
+
+When the world grows quiet and the sky turns silver, it’s easy to feel small beneath the endless stars. Yet even in the stillness, life hums softly — in the breeze that brushes your skin, in the heartbeat that refuses to fade, in the hope that lingers like morning light. Every calm night is a promise that dawn will return, carrying warmth for those who dare to keep dreaming. - Shein
+
